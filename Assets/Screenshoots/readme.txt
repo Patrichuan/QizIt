@@ -1,0 +1,1 @@
+Pantallazos de la aplicación
